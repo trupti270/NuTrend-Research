@@ -1,0 +1,1 @@
+# NuTrend-Research
